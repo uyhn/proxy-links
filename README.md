@@ -1,1 +1,1 @@
-# proxy-links
+https://google.com
