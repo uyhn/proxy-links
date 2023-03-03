@@ -4,3 +4,4 @@ https://metallic.gq
 https://cellscience.top
 https://amethystnetwork.store/
 https://ultraviolet-prxy.glitch.me/
+https://holy-prxy.glitch.me/
