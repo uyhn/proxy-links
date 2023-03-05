@@ -33,3 +33,11 @@ https://academichelp.xyz/
 https://cellscience.top/ 
 https://incogprxy-galaxybender.koyeb.app/
 https://nebula-galaxybender.koyeb.app/
+https://xyz.themosteducationalwebsite.ml/
+https://utopia.ggsmp.net/
+https://freenomisratelimitingme.ml/
+https://main.education/
+https://net.cloudranger.net/
+
+
+
