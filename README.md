@@ -38,6 +38,10 @@ https://utopia.ggsmp.net/
 https://freenomisratelimitingme.ml/
 https://main.education/
 https://net.cloudranger.net/
-
+https://math.creery.org/
+https://edu.creery.org/
+https://pdf.animalscience.ir/
+https://login.animalscience.ir/
+https://edu.animalscience.ir/
 
 
