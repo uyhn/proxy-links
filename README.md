@@ -37,7 +37,8 @@ https://xyz.themosteducationalwebsite.ml/
 https://utopia.ggsmp.net/
 https://freenomisratelimitingme.ml/
 https://main.education/
-https://net.cloudranger.net/
+These dont work in apps
+(https://net.cloudranger.net/
 https://math.creery.org/
 https://edu.creery.org/
 https://pdf.animalscience.ir/
@@ -45,5 +46,4 @@ https://login.animalscience.ir/
 https://edu.animalscience.ir/
 https://stealth.wooloo.net/
 https://gravity.nelsonshack.com/
-https://wildcard.koakh.com/
-https://net.cloudranger.net/
+https://wildcard.koakh.com/)
