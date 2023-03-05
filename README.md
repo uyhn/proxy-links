@@ -3,12 +3,12 @@ https://incognito-production-1e7c.up.railway.app
 https://metallic.gq
 https://cellscience.top
 https://amethystnetwork.store/
+https://amethystnetwork.org/
 https://ultraviolet-prxy.glitch.me/
 https://holy-prxy.glitch.me/
 https://nebula-prxy.glitch.me/
-
-
-Utopia Links!
+https://nebulaprxy.up.railway.app/
+https://incogprxy.up.railway.app/
 https://utopiaunblocker.org/
 https://smartowls.tk/
 https://learn.gq/
@@ -31,3 +31,5 @@ https://windywinter.cf/
 https://main.education/
 https://academichelp.xyz/
 https://cellscience.top/ 
+https://incogprxy-galaxybender.koyeb.app/
+https://nebula-galaxybender.koyeb.app/
