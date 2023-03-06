@@ -38,21 +38,6 @@ https://xyz.themosteducationalwebsite.ml/
 https://utopia.ggsmp.net/
 https://freenomisratelimitingme.ml/
 https://main.education/
-These dont work in apps
-(((https://net.cloudranger.net/
-https://math.creery.org/
-https://edu.creery.org/
-https://pdf.animalscience.ir/
-https://login.animalscience.ir/
-https://edu.animalscience.ir/
-https://stealth.wooloo.net/
-https://gravity.nelsonshack.com/
-https://wildcard.koakh.com/)))
-https://incog.motortruck1221.tech/
 https://seed-germination.xyz/
 https://historicalanime.org
 https://milklookupguide.com/
-https://schooltutor.xyz/
-https://gafiradar.com/
-https://bananaboat.me
-https://rammerhead.org
