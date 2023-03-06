@@ -1,9 +1,10 @@
 https://google.com
 https://incognito-production-1e7c.up.railway.app
 https://metallic.gq
+https://birdfood.gq
 https://cellscience.top
 https://amethystnetwork.store/
-https://amethystnetwork.org/
+https://amethyst-rewrite-production.up.railway.app/
 https://ultraviolet-prxy.glitch.me/
 https://holy-prxy.glitch.me/
 https://nebula-prxy.glitch.me/
@@ -54,3 +55,4 @@ https://milklookupguide.com/
 https://schooltutor.xyz/
 https://gafiradar.com/
 https://bananaboat.me
+https://rammerhead.org
