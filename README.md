@@ -38,6 +38,4 @@ https://xyz.themosteducationalwebsite.ml/
 https://utopia.ggsmp.net/
 https://freenomisratelimitingme.ml/
 https://main.education/
-https://seed-germination.xyz/
-https://historicalanime.org
-https://milklookupguide.com/
+https://twobrownbags.xyz/
