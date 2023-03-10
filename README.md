@@ -1,4 +1,5 @@
 https://google.com
+https://rammerhead-gen.glitch.me/
 https://incognito-production-1e7c.up.railway.app
 https://metallic.gq
 https://birdfood.gq
@@ -39,3 +40,21 @@ https://utopia.ggsmp.net/
 https://freenomisratelimitingme.ml/
 https://main.education/
 https://twobrownbags.xyz/
+https://shuttleproxy.com
+https://education.mordeco.com/
+https://edu.mordeco.com/
+https://homeworkistrash.ml/
+https://python3langdocs.net/
+https://desmos.up.railway.app/
+https://getbackmath.com/
+https://apps.ballbang-dc77.com/
+https://replit.com/@Baconman321/Browser-Emulator?v=1
+https://bookbird.cf/
+https://bookbird.ml/
+https://bookbird.ga/
+https://abc-math-learning.tk/
+https://abc-math-learning.cf/
+https://wordleunlimited711.ml/
+https://huanacademy.org/
+https://penrose-production.up.railway.app/
+https://penrose-production-1b0b.up.railway.app/
