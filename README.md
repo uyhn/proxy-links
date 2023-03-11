@@ -1,3 +1,5 @@
+here are uyhn's proxy links! (only a few were made by me)
+if a proxy is blocked let me know somehow
 https://google.com
 https://rammerhead-gen.glitch.me/
 https://incognito-production-1e7c.up.railway.app
@@ -48,7 +50,7 @@ https://python3langdocs.net/
 https://desmos.up.railway.app/
 https://getbackmath.com/
 https://apps.ballbang-dc77.com/
-https://replit.com/@Baconman321/Browser-Emulator?v=1
+https://mathsspot.algebrashelper.com/
 https://bookbird.cf/
 https://bookbird.ml/
 https://bookbird.ga/
@@ -58,6 +60,5 @@ https://wordleunlimited711.ml/
 https://huanacademy.org/
 https://penrose-production.up.railway.app/
 https://penrose-production-1b0b.up.railway.app/
-https://bypasshub.glitch.me/
 https://supreme.education/
-https://asteroids.gq/
+https://e3e.glitch.me/
