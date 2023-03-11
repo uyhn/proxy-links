@@ -64,3 +64,6 @@ https://supreme.education/
 https://e3e.glitch.me/
 https://direct2.rammerhead.org/
 https://admin.mordeco.com/
+https://aurora-borealis.info/
+https://incogn.onrender.com/
+https://jade.tethers.wiki/
