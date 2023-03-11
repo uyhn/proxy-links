@@ -28,7 +28,6 @@ https://winterwaffles.cf/
 https://winterwaffles.gq/
 https://utopia.education/
 https://utopiaworld.ink/
-https://www.learningmath.space/
 https://www.veryeducational.xyz/
 https://juicycroissant.cf/
 https://windywinter.cf/
