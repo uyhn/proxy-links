@@ -1,6 +1,7 @@
 here are uyhn's proxy links! (only a few were made by me)
 if a proxy is blocked let me know somehow
 https://google.com
+https://asteroids.gq/service/hvtrs8%2F-nmweg%2Cmg%2F
 https://rammerhead-gen.glitch.me/
 https://incognito-production-1e7c.up.railway.app
 https://metallic.gq
