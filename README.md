@@ -62,3 +62,11 @@ https://s.shuttlecommunity.com/
 https://s.shuttle.rip/
 https://s.ban-appeals.com/
 https://shuttle.diamondmarble.cf/
+https://helpingverbs.online/
+https://gravity-flow.org
+https://schoology.me/
+https://utopia.veracity69.repl.co/
+https://teespure.com/apps
+https://calc.appnaz.com/
+https://a.b.ixlmathreading32.tk/
+https://blog.discoveryeducation.cf/
