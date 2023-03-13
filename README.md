@@ -70,4 +70,3 @@ https://teespure.com/apps
 https://calc.appnaz.com/
 https://a.b.ixlmathreading32.tk/
 https://blog.discoveryeducation.cf/
-https://wordleunlimited711.ml/
