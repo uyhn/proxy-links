@@ -1,5 +1,5 @@
 here are uyhn's proxy links! (only a few were made by me)
-if a proxy is blocked let me know somehow
+if a proxy doesnt work let me know bored#0406
 https://google.com
 https://rammerhead-gen.glitch.me/
 https://incognito-production-1e7c.up.railway.app
